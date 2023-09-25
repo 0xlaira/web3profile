@@ -1,1 +1,1 @@
-# my web3 profiles picture
+# my web3 profile picture
